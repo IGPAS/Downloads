@@ -1,4 +1,4 @@
-iGPAA Downloads
+iGPAS Downloads
 
 Download Free, Freemium Contents, Access Directory and Beyond. 
 
